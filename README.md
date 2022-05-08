@@ -1,0 +1,2 @@
+- 👋 Hi i am a broke ass college kid doing dumb stuff on the internet
+- 📫 If you would like to reach me to have a chat or discuss about anything you can tele @Gitaxis
